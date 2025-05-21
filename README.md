@@ -1,2 +1,2 @@
 # os-labs
-https://youtu.be/CVAXeLs4Nqk
+(https://drive.google.com/drive/folders/1KqTBvjU-PEiqTQPpLT2YwbSHELdCnEVx?usp=drive_link)
